@@ -1,1 +1,1 @@
-# Geodados de Manaus/AM &#127758
+# Geodados de Manaus/AM 🗺️
